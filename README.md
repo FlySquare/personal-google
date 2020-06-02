@@ -1,1 +1,1 @@
-![alt text](http://www.bolfps.com/pgoogle/asd.jpg)
+![alt text](http://www.bolfps.com/pgoogle/asd.png)
